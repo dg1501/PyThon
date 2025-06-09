@@ -4,4 +4,4 @@
 ### MSV: K225480106093
 ### LỚP: K58KTP
 ### GIÁO VIÊN HƯỚNG DẪN: TS. NGUYỄN VĂN HUY
-1. Link Youtube: https://www.youtube.com/@DuongNguyen-ik2gi
+1. Link Youtube: https://www.youtube.com/watch?v=hlpXgzIO1EQ
